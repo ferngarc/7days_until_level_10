@@ -12,7 +12,7 @@ This plan will guide you through techniques to reach Focus Level 10 for manifest
   2. **Breathing Practice** (2 min): Practice 4-7-8 breathing (inhale for 4, hold for 7, exhale for 8).
   3. **Intention Setting** (2 min): State an intention, such as, “I am attracting [goal].”
   4. **Visualization of Goal** (4 min): Visualize the desired outcome with detail.
-- **Audio**: [Body Scan and Intention Setting](#)
+- **Audio**: [Body Scan and Intention Setting](https://mynoise.net/NoiseMachines/binauralBrainwaveGenerator.php)
 
 ---
 
@@ -22,7 +22,7 @@ This plan will guide you through techniques to reach Focus Level 10 for manifest
   1. **Body Scan and Breathing** (5 min): Repeat body relaxation and breathing exercise.
   2. **Hemispheric Synchronization** (5 min): Use a binaural beat audio clip (10 Hz alpha wave).
   3. **Expanded Awareness Visualization** (5 min): Imagine expanding your consciousness beyond your body, filling the room and beyond.
-- **Audio**: [Alpha Wave Binaural Beat (10 min)](#)
+- **Audio**: [Alpha Wave Binaural Beat (10 min)](https://mynoise.net/NoiseMachines/binauralBrainwaveGenerator.php)
 
 ---
 
@@ -32,7 +32,7 @@ This plan will guide you through techniques to reach Focus Level 10 for manifest
   1. **Relaxation and Breathing** (5 min): Repeat body scan and breathing exercise.
   2. **Hemispheric Synchronization** (5 min): Listen to the alpha wave audio.
   3. **Patterning Visualization** (5 min): Visualize the process of achieving your goal. Picture each step and “see” yourself succeeding.
-- **Audio**: [Alpha Wave Binaural Beat (10 min)](#)
+- **Audio**: [Alpha Wave Binaural Beat (10 min)](https://mynoise.net/NoiseMachines/binauralBrainwaveGenerator.php)
 
 ---
 
@@ -41,7 +41,7 @@ This plan will guide you through techniques to reach Focus Level 10 for manifest
 - **Process**:
   1. **Body Scan, Breathing, and Synchronization** (10 min): Relax, breathe, and listen to alpha wave audio.
   2. **Free Visualization** (5 min): Let go of the specific steps and freely visualize your goals, maintaining a feeling of flow and confidence.
-- **Audio**: [Alpha Wave Binaural Beat (10 min)](#)
+- **Audio**: [Alpha Wave Binaural Beat (10 min)](https://mynoise.net/NoiseMachines/binauralBrainwaveGenerator.php)
 
 ---
 
